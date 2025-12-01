@@ -1,0 +1,47 @@
+# Paledusk – SUPER NATURAL HIGH
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I'm in my moon phase
+My pink days
+When everything is okay
+I am beautiful, invincible
+Perfectly impossible
+And nothing in this world can
+shake me
+Trip me up or complicate me
+Love is all that motivates me
+I'm on a supernatural high
+Got a supernatural life
+You're the reason I'm on a
+supernatural high
+I'm on a cool trip
+A skinny dip
+Swimmin' in the thick of it
+I'm a free bird, the magic word
+The sweetest sound you've ever
+heard
+And nothing in this world can
+change me
+Turn me out or rearrange me
+Love is all that matters lately
+(Chorus)
+Dancin' without touching ground
+I'm flyin' on the wings of how I
+feel when you're around
+I'm in my moon phase
+My pink days
+When everything is okay
+I got a sure thing, the gold
+ring
+I'm waking up my wildest dreams
+And nothing in this world can
+change me
+Turn me out or rearrange me
+Love is all that motivates me
+I'm on a supernatural high
+Got a supernatural life
+You're the reason I'm on a
+supernatural high
+```
